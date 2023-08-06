@@ -1,8 +1,8 @@
-<h1 align="center"><b>[⚡] 𝙏𝙝𝙚𝙓𝘽𝙤𝙩𝙨 [⚡]</b></h1>
+<h1 align="center"><b>[⚡]| 🚩|𝐃𝐄𝐒𝐓𝐑𝐎𝐘𝐄𝐑❛ ꭙ ❜𝐅𝐈𝐆𝐇𝐓𝐄𝐑| 🚩| [⚡]</b></h1>
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/PyXen"><img src="https://te.legra.ph/file/07d39b85c6cea32f15259.jpg" width="400"></a></p>
+<p align="center"><a href="https://t.me/PyXen"><img src="https://graph.org/file/cc2e265b93ea870d0b193.jpg"></a></p>
 
 
 > ⭐️ Thanks to everyone for using this op XBOTS. That is the greatest pleasure we have !
